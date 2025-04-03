@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tademillion
 - 👀 I’m interested in
-- 🌱 I’m currently learning ...at university
+- 🌱 I’m currently Working at Amhara Bank
 - 💞️ I’m looking to collaborate on  web development
 - 📫 How to reach me ...
 tedlamillionyou@gmail.com or +25139847277
